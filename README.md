@@ -1,1 +1,1 @@
-# Prjavaani-Pro
+# Prajavaani-Pro
